@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on abbbsssoollluuutttteeellllyyyyyy nnnnoootthhhiiinnngggggggg
 - 📫 How to reach me intagram - @rowan__0877
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: java is easy lol
+- ⚡ Fun fact: java ain't easy 
 
 <!---
 rowan0877/rowan0877 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
